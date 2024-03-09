@@ -1,2 +1,0 @@
-# ramansnaphackyh
-ramanandcleverdev
